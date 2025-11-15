@@ -132,3 +132,4 @@ Video explicativo
 https://correoitmedu-my.sharepoint.com/my?id=%2Fpersonal%2Fjorgeberrio196242%5Fcorreo%5Fitm%5Fedu%5Fco%2FDocuments%2FRecordings\&ga=1\&classId=f520633b%2D1538%2D43c8%2Da7db%2Dc02e2076e28b\&assignmentId=253881da%2D2349%2D431e%2D8312%2D3ee4d2c40080\&submissionId=92d7906e%2D1158%2D1703%2Db538%2Dc29f6dddcc17
 
 AUTOR: JORGE LUIS BERRIO PINO
+
